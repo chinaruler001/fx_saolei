@@ -4,7 +4,7 @@
 电报游戏、
 电报红包扫雷机器人、
 
-我的频道 https://t.me/fxtianxia
+我的频道 https://t.me/fangxinkeji
 
 游戏体验群 https://t.me/+2TEgTvdjcAo4ZjQ1
 
